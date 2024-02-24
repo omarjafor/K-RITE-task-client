@@ -2,5 +2,5 @@
 
 
 ## For time saving you can use login details below
-#### Eamil: sadiamania@gmail.com
+#### Email: sadiamania@gmail.com
 #### Password: 123456A@
